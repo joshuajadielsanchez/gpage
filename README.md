@@ -1,1 +1,1 @@
-Joshua Jadiel Sánchez Novelo 2AMpr
+Joshua Jadiel Sanchez Novelo 2AMpr
